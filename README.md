@@ -1,7 +1,5 @@
-# privacy-policy
+# Privacy Policy
 
-
-# Privacy Policy for RUX: Grow Smarter Every Day
 
 **Last Updated:** May 2025
 
